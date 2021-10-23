@@ -1,4 +1,4 @@
-Strogonof de Frango
+Strogonof de Carne
 
 
 Ingredientes
